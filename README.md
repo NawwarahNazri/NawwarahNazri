@@ -8,7 +8,7 @@
 -Fantasy movies, on the other hand, are where I truly lose myself. From magical creatures to epic quests, count me in for any captivating fantasy adventure.
 
 📫 **How to Reach Me:**
-- LinkedIn: linkedin.com/in/nur-fatin-nawwarah-nazri-6593a228a
+- LinkedIn: linkedin.com/in/nur-fatin-nawwarah-nazri-6593a228a 
 - Email: fatinnawwarahwork@gmail.com
 
 
